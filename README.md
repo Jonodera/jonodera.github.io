@@ -1,2 +1,0 @@
-# jonodera.github.io
-
